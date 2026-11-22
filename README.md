@@ -1,1 +1,1 @@
-a bunch of releases that belong to me
+a bunch of releases, made by me and teammates if any
