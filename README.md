@@ -1,1 +1,1 @@
-a bunch of releases, made by me and teammates if any
+a bunch of releases, made by me , or with features that i worked on, 
